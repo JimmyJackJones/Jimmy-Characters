@@ -76,7 +76,7 @@ Master:
 4. Does your character like your race? sees humans as any other species (isnt really aware of orc ancestry)(so pretty much fine)
 
 1. Where was your character born? Rahadoum
-2. Where were you raised?
+2. Where were you raised? Haldun a village in the south of Radahoum Mountains
 3. Who raised your characters? His mother but he did spend a lot of time with Lostav
 4. Who are your parents? Ilda Greyrite (mother) and Voltak Blacksteel (father)
 5. What are your parents’ names? ^^^^^
